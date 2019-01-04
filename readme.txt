@@ -1,1 +1,1 @@
-Hello, asshole.
+Hello, friend.
